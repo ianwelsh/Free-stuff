@@ -1,1 +1,1 @@
-Free, as in beer.
+Free, as in ~beer~ t-shirt.
